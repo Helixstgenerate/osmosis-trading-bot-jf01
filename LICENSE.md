@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom osmosis trading bot Executor | blockchain-scanning + gas-optimization, the #1 osmosis trading bot. Includes blockchain-scanning and
 
 
 
